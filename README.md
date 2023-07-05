@@ -18,8 +18,7 @@ Java | SQL | HTML | CSS | Java Script | DSA
 Resume Download Pulak's-Resume
 https://drive.google.com/file/d/1eMNGtBbrFkfTsUJi8gUANcPcBKpAH0FZ/view?usp=sharing
 
-Socials Connect with me 🙋🏻
-linkedin.com/in/pulak-kanti-pramanik-259718247
+
 
 
 
